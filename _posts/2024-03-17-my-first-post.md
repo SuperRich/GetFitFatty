@@ -5,7 +5,8 @@ date: 2024-03-17
 ---
 You may have noticed my series on YouTube and if not here's the link to the first video!
 
-https://www.youtube.com/watch?v=lcS-0A9WfUo
+[Click here to watch the video!](https://www.youtube.com/watch?v=lcS-0A9WfUo)
+
 
 Well let's reset as last week couldn't have gone worse!
 
