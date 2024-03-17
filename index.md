@@ -1,6 +1,5 @@
 ---
 layout: home
-title: My Awesome Blog
+title: A journey of weight loss!
 ---
 
-Welcome to my blog!
