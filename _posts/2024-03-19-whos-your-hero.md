@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "Imitating a legend"
-date: 2024-03-18
+date: 2024-03-19
 ---
 
 I need to make this fun for me. Now growing up one of my absolute favourite people in this world was a guy called "The Rock". Before he became hollywood famous, I'd get upset if I couldn't watch him on Sky One on Saturday mornings back in the day....
