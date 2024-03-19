@@ -44,7 +44,7 @@ So that was the plan and here is what actually happened....
 I use an app called Strong to track my workouts so here it is in raw form.
 ..
 
-Not quite like The Rock would have done but on my defense JD was rammed and I'll confess I have no clue what a four way neck machine is!
+Not quite like The Rock would have done but in my defense JD was rammed and I'll confess I have no clue what a four way neck machine is!
 
 # Congratulations!
 That's your workout number 228!
