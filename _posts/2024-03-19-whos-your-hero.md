@@ -36,3 +36,32 @@ I'm gonna be copying one of his workouts I've found online this week, maybe two 
 6. **Four Way Neck Machine**
    - Sets: 4
    - Reps: 12
+
+Time passes....
+
+So that was the plan and here is what actually happened....
+
+I use an app called Strong to track my workouts so here it is in raw form.
+..
+
+Not quite like The Rock would have done but on my defense JD was rammed and I'll confess I have no clue what a four way neck machine is!
+
+# Congratulations!
+That's your workout number 228!
+
+## Evening Workout
+*Date:* 19 March
+
+*Duration:* 38m  
+*Total Weight Lifted:* 4,240 kg  
+*Personal Records (PRs):* 9
+
+### Exercises:
+1. **Lateral Raise (Dumbbell)**
+   - Best set: 12 kg x 8 reps
+2. **Front Raise (Dumbbell)**
+   - Best set: 12 kg x 8 reps
+3. **Shrug (Dumbbell)**
+   - Best set: 20 kg x 12 reps
+4. **Overhead Press (Dumbbell)**
+   - Best set: 12 kg x 20 reps
